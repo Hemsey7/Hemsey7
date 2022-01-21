@@ -1,6 +1,6 @@
-# Hi Everyone! My name is Luigi Grassini, AKA Hemsey, and this is my personal bio!
-- Motto: *Omnia Tempus Habent
-- 
+### Hi Everyone! My name is Luigi Grassini, AKA Hemsey, and this is my personal bio!
+Motto: *Omnia Tempus Habent*
+
 - 🌍 Lives in: ITALY, Tuscany (PI)
 - 😄 Pronouns: He/Him
 - 🔭 I’m currently studying from "TheSign Academy" (FI)
@@ -11,5 +11,5 @@
 - 🙏 Religion: Atheist but Captain Falcon enthusiast
 
 ![TimeHole](https://user-images.githubusercontent.com/98153032/150514576-1e909eb7-14e0-490d-a2f5-b973839bf04b.jpg)
-*cover from one of my favorite Lo-Fi Album
+*cover from one of my favorite Lo-Fi Album*
 
