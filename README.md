@@ -2,7 +2,7 @@
 
 - 🎂 7 June 1997
 - 🌍 Lives in ITALY, Tuscany (PI)
-- 😄 Pronouns: He/Him ♂️
+- ♂️ Pronouns: He/Him
 - 🔭 I’m currently studying from "TheSign Academy" (FI)
 - 🌱 I’m currently learning for "Game Design"
 - 📫 How to reach me: (Discord) Hemsey#7472
