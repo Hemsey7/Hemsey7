@@ -11,5 +11,5 @@
 - 🙏 Religion: Atheist but Arceus cultist.
 
 ![TimeHole](https://user-images.githubusercontent.com/98153032/150514576-1e909eb7-14e0-490d-a2f5-b973839bf04b.jpg)
-*cover from one of my favorite Lo-Fi Album*
+*cover from one of my favorite Lo-Fi Albums*
 
