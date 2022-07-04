@@ -2,12 +2,12 @@
 
 - 🎂 7 June 1997
 - 🌍 Lives in ITALY, Tuscany (PI)
-- 😄 Pronouns: He/Him
+- 😄 Pronouns: He/Him ♂️
 - 🔭 I’m currently studying from "TheSign Academy" (FI)
 - 🌱 I’m currently learning for "Game Design"
 - 📫 How to reach me: (Discord) Hemsey#7472
-- 🎵 Music Genre: All Genre, but likes the most Lo-Fi, Eurobeat and "Epic Music"c(Zack Hemsey, Hans Zimmer ecc.)
-- 🎮 Videogame Genre: Platformer 3D, Fighting games, Souls-like
+- 🎵 Music Genre: All Genre, but likes the most Lo-Fi, Eurobeat and "Epic Music" (Zack Hemsey, Hans Zimmer ecc.)
+- 🎮 Videogame Genre: Platformer 3D, Fighting games, Souls-like, Metroidvania
 - 🙏 Religion: Atheist but Arceus cultist.
 
 ![TimeHole](https://user-images.githubusercontent.com/98153032/150514576-1e909eb7-14e0-490d-a2f5-b973839bf04b.jpg)
